@@ -14,4 +14,8 @@
 #Anchor Links
 #Use of media query for responsiveness.
 
-💞️ I’m looking to collaborate on: Twitter: https://twitter.com/fiamzia Instagram: https://www.instagram.com/bouklihcn
+💞️ I’m looking to collaborate on: 
+Gmail: wafaa.bouklihc@gmail.com
+Twitter: https://twitter.com/fiamzia
+Facebook : wafaa boukli hcn
+Instagram: https://www.instagram.com/bouklihcn
